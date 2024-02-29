@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/996317994219225099/1197709436681191485/Untitled255_20240118170924.png?ex=65c57b56&is=65b30656&hm=1efff73b5c0d9725a1c63107d007d291e33d59cc04e2367baaf6f302f4137470&" width="200px">
+<img src="https://cdn.discordapp.com/attachments/996317994219225099/1202565579731640340/Actor2_3.png?ex=65e99af8&is=65d725f8&hm=3c6a5e8f444935c7275be3038d9ad11ee80e149b2f7d2ccab90a68c0763bd140&" width="200px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://snvffy.123guestbook.com/">my guestbook!</a> :3<br><br>
   <img src="https://64.media.tumblr.com/7ed5176a3eaa9b991bf246d1ad3915b8/b36456aa19536e8f-95/s640x960/75a1f446ef8f1d005eadc2234e27f202228c3bde.gifv" width="420px">
