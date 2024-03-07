@@ -11,3 +11,7 @@
   <br><img src="https://64.media.tumblr.com/49d942d916bd0deed7a5ed1a7b4fe1d9/2c23f0333b65c60f-2d/s100x200/95def5c5065cf9c7048e6fca3f7208e583314927.gifv" width="85px"> <img src="https://64.media.tumblr.com/0bf344c5582728f0fb02573b7ded63d2/8bdeba2cbc867670-1c/s100x200/5bd6b04b2ab6f3b35c48d61dac6f2675d539853c.gifv" width="85px"> <img src="https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj" width="85px"> 
   <br><img src="https://64.media.tumblr.com/9d51e9710d24283290d83c095614f818/f06d09507e506cb1-3c/s100x200/111631458af727dd8fe23acaeda17754b3524ae2.gifv" width="85px"> <img src="https://64.media.tumblr.com/ce28cf485da2000729f6d476f27daf0f/36bd4bbc8cd9631f-26/s250x400/7832953673742597cc907a13185d3196436937ad.pnj" width="85px"> <img src="https://64.media.tumblr.com/5f7baf5b8c8170d3fb00ed5907a7610b/91bb6b623c07e82c-cd/s100x200/9f61682804c1c42d315edf9931dfe848a0469287.gifv" width="85px">
 </p>
+<br>
+<br>
+<br>
+<br><a href="https://rentry.co/someonessystem">friends rentry</a> (they dont have a gethub or anything)
