@@ -1,15 +1,15 @@
 <p align="center">
-<img src="https://cdn.discordapp.com/attachments/996317994219225099/1202565578791981086/Actor2_1-1.png?ex=66054a78&is=65f2d578&hm=998fa3218a7e5ff6ac211291094889dece72bc3432621e407830953094717400&" width="100px">
+<img src="https://s1.ezgif.com/tmp/ezgif-1-0d14fa7f0b75.gif" width="200px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://snvffy.123guestbook.com/">my guestbook!</a> :3<br><br>
-  <img src="https://64.media.tumblr.com/7ed5176a3eaa9b991bf246d1ad3915b8/b36456aa19536e8f-95/s640x960/75a1f446ef8f1d005eadc2234e27f202228c3bde.gifv" width="420px">
+  <img src="https://s1.ezgif.com/tmp/ezgif-1-6de318b111fd.gif" width="120px">
 <br><br><b>☆ i am often offtab or afk so sorry if i dont talk to you
 <br><br><b>☆ i have social anxiety so i don't int first
 <br><br>☆ im okay with cuddles just dont be creepy about it
 <br><b> though im more comfy with cuddles if friends </b>
-<br><br><img src="https://64.media.tumblr.com/337c91700d86a0ee8ab36852fa544c09/4618732b104253a3-f1/s1280x1920/8d8c9ae2ee2d037838e13d1660592ef3563ee520.gifv" width="420px">
-  <br><img src="https://64.media.tumblr.com/49d942d916bd0deed7a5ed1a7b4fe1d9/2c23f0333b65c60f-2d/s100x200/95def5c5065cf9c7048e6fca3f7208e583314927.gifv" width="85px"> <img src="https://64.media.tumblr.com/0bf344c5582728f0fb02573b7ded63d2/8bdeba2cbc867670-1c/s100x200/5bd6b04b2ab6f3b35c48d61dac6f2675d539853c.gifv" width="85px"> <img src="https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj" width="85px"> 
-  <br><img src="https://64.media.tumblr.com/9d51e9710d24283290d83c095614f818/f06d09507e506cb1-3c/s100x200/111631458af727dd8fe23acaeda17754b3524ae2.gifv" width="85px"> <img src="https://64.media.tumblr.com/ce28cf485da2000729f6d476f27daf0f/36bd4bbc8cd9631f-26/s250x400/7832953673742597cc907a13185d3196436937ad.pnj" width="85px"> <img src="https://64.media.tumblr.com/5f7baf5b8c8170d3fb00ed5907a7610b/91bb6b623c07e82c-cd/s100x200/9f61682804c1c42d315edf9931dfe848a0469287.gifv" width="85px">
+<br><br><img src="https://64.media.tumblr.com/278614d707998059bb88677e3c869a7d/0674da4d685d3dc2-39/s1280x1920/f42f384fd3c93e44aacfdc4c0072c1aeb3e8e6fe.gifv" width="420px">
+  <br><img src="https://64.media.tumblr.com/e8440456acb50b507028b6378eeb6187/0a844093c4702aee-c0/s100x200/0cd31e85d122ef0197a3cd59e266b94fb3401725.gifv" width="85px"> <img src="https://64.media.tumblr.com/ca18a4757a14671c08a2caf56556b3af/64fd72d872061a87-f2/s250x400/0b06d32bff9a95dbef4010376839c85bd2934a27.gifv" width="85px"> <img src="https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj" width="85px"> 
+  <br><img src="https://64.media.tumblr.com/4b3274bae24ad6c6a5cc48032a9b64d8/64fd72d872061a87-76/s250x400/0a1bc783e93b4b75e178b385a674f9e2d3ce6335.gifv" width="85px"> <img src="https://64.media.tumblr.com/197e2b2b52919a6c0f2ac71c9cf01902/5e763f6fc9747e69-b0/s100x200/2e5704afbccf03c507d76d0589dadd324230bb1d.pnj" width="85px"> <img src="https://64.media.tumblr.com/5f7baf5b8c8170d3fb00ed5907a7610b/91bb6b623c07e82c-cd/s100x200/9f61682804c1c42d315edf9931dfe848a0469287.gifv" width="85px">
 </p>
 <br>
 <br>
