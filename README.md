@@ -2,7 +2,7 @@
 <img src="https://s1.ezgif.com/tmp/ezgif-1-0d14fa7f0b75.gif" width="200px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://snvffy.123guestbook.com/">my guestbook!</a> :3<br><br>
-  <img src="https://s1.ezgif.com/tmp/ezgif-1-6de318b111fd.gif" width="120px">
+  <img src="https://media1.tenor.com/m/T11dAwH8tHAAAAAC/the-nightly-manor-nightly-manor.gif" width="120px">
 <br><br><b>☆ i am often offtab or afk so sorry if i dont talk to you
 <br><br><b>☆ i have social anxiety so i don't int first
 <br><br>☆ im okay with cuddles just dont be creepy about it
