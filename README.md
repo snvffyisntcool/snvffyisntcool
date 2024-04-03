@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://s1.ezgif.com/tmp/ezgif-1-0d14fa7f0b75.gif" width="200px">
+<img src="https://s2.ezgif.com/tmp/ezgif-2-0d14fa7f0b75.gif" width="200px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://snvffy.123guestbook.com/">my guestbook!</a> :3<br><br>
   <img src="https://media1.tenor.com/m/T11dAwH8tHAAAAAC/the-nightly-manor-nightly-manor.gif" width="120px">
