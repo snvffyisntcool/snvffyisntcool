@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/ab8e32ffe6f5605bbd0ee2a96bcf8c09/c4b293f18a591360-6a/s400x600/3a73c2a09e6d911d50ad1900fd3b7f1fa6c0e802.pnj" width="200px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
-<br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://snvffy.123guestbook.com/">my guestbook!</a> :3<br><br>
+<br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://x.com/i_ate7bugz">my twitter!</a> :3<br><br>
   <img src="https://64.media.tumblr.com/295cc595a302877a1492dad2922de6c9/4f0841cb575967de-ce/s1280x1920/756f538b27ffbb947d7353d977c4cc9906c261d9.pnj" width="130px">
 <br><br><b>☆ i am often offtab or afk so sorry if i dont talk to you
 <br><br><b>☆ i have social anxiety so i don't int first
