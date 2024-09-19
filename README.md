@@ -14,4 +14,3 @@
 <br><img src="https://64.media.tumblr.com/d8241114567992b5d924871b3d70dcbe/8e46577bedd8d429-70/s2048x3072/2bdefa1c0f1ae10ac52849fec42a75440adde602.pnj" width="420px">
 <br>
 <br>
-<br><a href="https://rentry.co/someonessystem">friends rentry</a> (they dont have a gethub or anything)
