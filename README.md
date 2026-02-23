@@ -4,7 +4,7 @@
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://x.com/i_ate7bugz">my twitter!</a> :3<br><br>
   <img src="https://files.catbox.moe/jdlzuk.gif" width="130px">
 <br><br><b>☆ i am often offtab or afk so sorry if i dont talk to you
-<br><br><b>☆ i have social anxiety so i don't int first
+<br><br><b>☆ i have social anxiety so i don't int first + im socialy awkward lol sorry 
 <br><br>☆ im okay with cuddles just dont be creepy about it
 <br><br>☆ you can ask me for my discord i wont get upset
 <br><br>☆ dont copy my pony freaks pleases ill pee [inspo is alr]
