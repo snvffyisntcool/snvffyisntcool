@@ -13,4 +13,4 @@
   <br><img src="https://64.media.tumblr.com/2992003fe8aee73cb6d8481c689905bd/4650c263c2440927-3f/s100x200/bf23567abb8e89950094e7b36884bb4c7cce44bb.gifv" width="85px"> <img src="https://64.media.tumblr.com/a058b6df5803aceaa24048ab4b77cb34/f1413ef45abf2485-3b/s100x200/fb49aa8a0783dd778a5a9ff022da78f33903f057.gifv" width="85px"> <img src="https://64.media.tumblr.com/5f7baf5b8c8170d3fb00ed5907a7610b/91bb6b623c07e82c-cd/s100x200/9f61682804c1c42d315edf9931dfe848a0469287.gifv" width="85px">
 <br><img src="https://files.catbox.moe/gs5765.png" width="420px">
 <br>
-<br>
+   <br /> <div align="center">  <img src="https://komarev.com/ghpvc/?username=snvffyisntcool&color=46688f&label=LOSERS" alt="profile views" style="max-width:100%;">  </div>ㅤㅤ
