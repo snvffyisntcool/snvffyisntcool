@@ -3,7 +3,7 @@
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
 <br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://x.com/i_ate7bugz">my twitter!</a> :3<br><br>
   <img src="https://files.catbox.moe/jdlzuk.gif" width="130px">
-<br><br>☆ int/w2i almost always / c+h freely
+<br><br>☆ int/w2i almost always / c+h freely especially friends :-)
 <br><br><b>☆ i am often offtab or afk so sorry if i respond late
 <br><br><b>☆ when im alone im extreamly socialy awkward
 <br><br>☆ dont be scared to talk when im w/ someone!
