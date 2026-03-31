@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://files.catbox.moe/ufwht8.png" width="300px">
 <br><br><b>☆ snvffy</b> he/it  (<a href="https://pronouns.cc/@snvffy">+</a>) 
-<br><a href="https://snvffy.straw.page/">more about me</a> + <a href="https://x.com/i_ate7bugz">my twitter!</a> :3<br><br>
+<br><a href="https://snvffy.straw.page/">more about me</a> + <a href="[https://x.com/i_ate7bugz](https://snvffy.notepin.co/)">my notepin!</a> :3<br><br>
   <img src="https://files.catbox.moe/jdlzuk.gif" width="130px">
 <br><br>☆ int/w2i almost always / c+h freely especially friends :-)
 <br><br><b>☆ i am often offtab or afk so sorry if i respond late
