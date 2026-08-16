@@ -9,10 +9,10 @@
 <img src="https://64.media.tumblr.com/39fb7ad51cf8cc0c008642780cc3ed04/3c45cd0dcec3c59e-f2/s1280x1920/ce9bc07cfbe37cdd672a0f5b81f277d652d8604c.pnj" width="400">
 
 <BR>╰┈➤ `often off tab W2I - - - `
-<BR>╰━ || `C*H FREELY`
+<BR>╰━ || `C*H FREELY IDC`
 <br>
 <img src="https://64.media.tumblr.com/198711960a4fcae77f213a352a93187a/85edfd53d6d2bedd-86/s2048x3072/4a42e58501ae98c812f6693ed262a447ac9b7bb1.pnj" width="450">
-<br>━ `im not good at socalizing`
+<br>━ `I got social anxiety`
 <br>━ `ask 4 discord`
 
 <img src="https://64.media.tumblr.com/a9192319c2c7bc33da33d3bfa34b664f/ca2ddaaa4314a992-12/s2048x3072/6124ea2050d9e65c03cddedcc49bb4b970ee1b76.pnj" width="400">
@@ -29,7 +29,7 @@
 </details>
 
 <details>
-<summary> $${\color{#f5c842} EXTRAS }$$ </summary>
+<summary> $${\color{#f5c842} ⚔ }$$ </summary>
 
 <img src="https://64.media.tumblr.com/1ef6b0b1568b8cbec1df588bee341b2c/424d503a9e45b646-8b/s100x200/4477b1ad2e3a52bac07689e7469c3b95696cdd13.pnj"> <img src="https://64.media.tumblr.com/7d2f60b7db6777a0d9bac6112047e64e/7ecd68755153d5de-82/s100x200/9975069e25134d3dcff021a49e34881489900b09.pnj"> <img src="https://64.media.tumblr.com/e11dfaa5cf051490497c1ef14e8c4082/dd851ed67dd48774-80/s100x200/09b256663252601c1212e1cb3187e4b7d1927636.pnj">
 
