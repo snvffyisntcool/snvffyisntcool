@@ -12,7 +12,7 @@
 <BR>╰━ || `C*H FREELY IDC`
 <br>
 <img src="https://64.media.tumblr.com/198711960a4fcae77f213a352a93187a/85edfd53d6d2bedd-86/s2048x3072/4a42e58501ae98c812f6693ed262a447ac9b7bb1.pnj" width="450">
-<br>━ `I got social anxiety`
+<br>━ `I'm bad at socializing`
 <br>━ `ask 4 discord`
 
 <img src="https://64.media.tumblr.com/a9192319c2c7bc33da33d3bfa34b664f/ca2ddaaa4314a992-12/s2048x3072/6124ea2050d9e65c03cddedcc49bb4b970ee1b76.pnj" width="400">
