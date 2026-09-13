@@ -29,7 +29,7 @@
 </details>
 
 <details>
-<summary> $${\color{#FFFFFF} ⚔ }$$ </summary>
+<summary> $${\color{#7deb34} ⚔ }$$ </summary>
 
 <img src="https://64.media.tumblr.com/1ef6b0b1568b8cbec1df588bee341b2c/424d503a9e45b646-8b/s100x200/4477b1ad2e3a52bac07689e7469c3b95696cdd13.pnj"> <img src="https://64.media.tumblr.com/7d2f60b7db6777a0d9bac6112047e64e/7ecd68755153d5de-82/s100x200/9975069e25134d3dcff021a49e34881489900b09.pnj"> <img src="https://64.media.tumblr.com/e11dfaa5cf051490497c1ef14e8c4082/dd851ed67dd48774-80/s100x200/09b256663252601c1212e1cb3187e4b7d1927636.pnj">
 
