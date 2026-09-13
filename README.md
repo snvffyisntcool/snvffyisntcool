@@ -29,10 +29,16 @@
 </details>
 
 <details>
-<summary> $${\color{#f5c842} ⚔ }$$ </summary>
+<summary> $${\color{#FFFFFF} ⚔ }$$ </summary>
 
 <img src="https://64.media.tumblr.com/1ef6b0b1568b8cbec1df588bee341b2c/424d503a9e45b646-8b/s100x200/4477b1ad2e3a52bac07689e7469c3b95696cdd13.pnj"> <img src="https://64.media.tumblr.com/7d2f60b7db6777a0d9bac6112047e64e/7ecd68755153d5de-82/s100x200/9975069e25134d3dcff021a49e34881489900b09.pnj"> <img src="https://64.media.tumblr.com/e11dfaa5cf051490497c1ef14e8c4082/dd851ed67dd48774-80/s100x200/09b256663252601c1212e1cb3187e4b7d1927636.pnj">
 
 <img src="https://64.media.tumblr.com/cc6601bff4cafa9807239d7011a848e7/424d503a9e45b646-0e/s250x400/600ad3975effd39870e33badb1d02cddd8a01a56.gifv"> <img src="https://64.media.tumblr.com/1f531e54bb53cafe2023dcfb788ad523/20db5746b8d5dde7-68/s250x400/445953dbfb5515b5a94d50b5dc57c408d7acd578.webp"> 
 
 <img src="https://64.media.tumblr.com/49c5b036e1fff67dae28a92ea6b35541/8241699db23afa37-05/s400x600/297a2df149c1b1b00e078727cfc3ba3a6afb0426.pnj">
+</details>
+
+<details>
+<summary> $${\color{#f5c842} COOL - PPL }$$ </summary>
+@M1s0thefox
+</details>
