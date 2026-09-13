@@ -37,8 +37,3 @@
 
 <img src="https://64.media.tumblr.com/49c5b036e1fff67dae28a92ea6b35541/8241699db23afa37-05/s400x600/297a2df149c1b1b00e078727cfc3ba3a6afb0426.pnj">
 </details>
-
-<details>
-<summary> $${\color{#f5c842} COOL - PPL }$$ </summary>
-@M1s0thefox
-</details>
