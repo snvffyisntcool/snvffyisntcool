@@ -1,39 +1,44 @@
 <div align="center">
 
-<img width="400" height="400" alt="ki249o" src="https://64.media.tumblr.com/f3f4c63cae108b4e52ea71f60c3bbdeb/59824c6d09f6d8b9-4e/s2048x3072/13241fedbea6242996b7fd24cccb4a34c8afc9be.pnj" />
-
-<img width="30" height="30" alt="ki249o" src="https://minecraft.wiki/images/Enchanted_Diamond_Sword.gif?f741f" /> $\color{#7deb34} ⸝⸝ SNVFFY ━ HE/IT (+) $
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FFFFFF90&width=435&lines=%22Nothing+built+can+last+forever%22)](https://git.io/typing-svg)
-
-<img src="https://64.media.tumblr.com/39fb7ad51cf8cc0c008642780cc3ed04/3c45cd0dcec3c59e-f2/s1280x1920/ce9bc07cfbe37cdd672a0f5b81f277d652d8604c.pnj" width="400">
-
-<BR>╰┈➤ `often off tab W2I - - - `
-<BR>╰━ || `C*H FREELY IDC`
+<img src="https://64.media.tumblr.com/ccdeb5a0285f9230cbe118b082b4ca4f/28b7556ffbfa6a70-96/s2048x3072/8420c5d242ab9d8a1b04826e83bcb39467e9179c.pnj" width="500" >
 <br>
-<img src="https://64.media.tumblr.com/198711960a4fcae77f213a352a93187a/85edfd53d6d2bedd-86/s2048x3072/4a42e58501ae98c812f6693ed262a447ac9b7bb1.pnj" width="450">
-<br>━ `I'm bad at socializing`
-<br>━ `ask 4 discord`
+<img src="https://64.media.tumblr.com/833f450a083f53979b7a8f47c3c681a2/08240a65b87b9229-03/s2048x3072/1f84678611ffd44b19faab49b4df95f913b58e68.pnj" width="500">
 
-<img src="https://64.media.tumblr.com/a9192319c2c7bc33da33d3bfa34b664f/ca2ddaaa4314a992-12/s2048x3072/6124ea2050d9e65c03cddedcc49bb4b970ee1b76.pnj" width="400">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=2A5D8C&center=true&width=435&lines=%E2%9D%9D+then+believe+in+me+%E2%9D%9E)](https://git.io/typing-svg)
+<br>
+<img width="30" height="30" alt="ki249o" src="https://64.media.tumblr.com/ded226a6c98ba67181075e4d7471e3cf/8622497859e9ab3b-e6/s64x64u_c1/788c2e4c61ed043739db98c2b2e53b3553c994c4.pnj" /> ${\color{#55B3CC} ⊱ snvffy - he/it ⊰ }$
+<br>
+
+`often off tab W2I - `
+<br>
+`C+H freely! ༄`
+<br>
+<img src="https://files.catbox.moe/kxq77y.png" width="250">
+<br>
+`𓈒° socialy awkward`
+<br>
+`(¬﹏¬")`
+
+<img src="https://64.media.tumblr.com/59a1685fefa418742e122e7151e1f8be/6c010a2225957f8c-a9/s400x600/aaee522904e2ba44f863371c924a11dc51aa319d.gifv">
+<br>
+<img src="https://64.media.tumblr.com/feb56262c08a13bbca2f503cd5e3ed71/b5bda8845700a031-46/s2048x3072/c537262fd47f93dbc1af9306db3965e74d3f2206.pnj" width="500" >
 
 <details>
-<summary> $${\color{#7deb34} LINKS }$$ </summary>
+<summary> $${\color{#2a5d8c} 𓂃 LINKS 𓂅 }$$ </summary>
   
-<img src="https://i.pinimg.com/736x/58/05/bf/5805bfb974c92449a1c9335ebe58f009.jpg" width="20">┊ [pronouns cc!](https://pronouns.cc/@snvffy)
-  
-<img src="https://minecraft.wiki/images/Invicon_Nether_Star.gif?afad5" width="30">┊ [straw page!](https://snvffy.straw.page/)
+<img src="https://files.catbox.moe/9v55xc.webp" width="30">┊ [pronouns cc!](https://pronouns.cc/@snvffy)
+ 
+<img src="https://static.wikia.nocookie.net/minecraft/images/c/ce/Squid.gif/revision/latest?cb=20191025021504" width="30">┊ [straw page!](https://snvffy.straw.page/)
 
 <img src="https://minecraft.wiki/images/Book_and_Quill_JE2_BE2.png?2128f" width="30">┊ [atabook!](https://snvffy.atabook.org/)
 
 </details>
 
 <details>
-<summary> $${\color{#7deb34} ⚔ }$$ </summary>
+<summary> $${\color{#55B3CC} ଲ }$$ </summary>
 
-<img src="https://64.media.tumblr.com/1ef6b0b1568b8cbec1df588bee341b2c/424d503a9e45b646-8b/s100x200/4477b1ad2e3a52bac07689e7469c3b95696cdd13.pnj"> <img src="https://64.media.tumblr.com/7d2f60b7db6777a0d9bac6112047e64e/7ecd68755153d5de-82/s100x200/9975069e25134d3dcff021a49e34881489900b09.pnj"> <img src="https://64.media.tumblr.com/e11dfaa5cf051490497c1ef14e8c4082/dd851ed67dd48774-80/s100x200/09b256663252601c1212e1cb3187e4b7d1927636.pnj">
+<img src="https://files.catbox.moe/nbgbd0.gif"> <img src="https://64.media.tumblr.com/a1fc4bc6cd24dea0b786341e55f5f51a/f0cd2b4d8a12ad73-49/s100x200/8afda249498d3bc1a35a23fe1d6666406cc11a2c.gifv"> <img src="https://files.catbox.moe/gr4abk.gif">
 
-<img src="https://64.media.tumblr.com/cc6601bff4cafa9807239d7011a848e7/424d503a9e45b646-0e/s250x400/600ad3975effd39870e33badb1d02cddd8a01a56.gifv"> <img src="https://64.media.tumblr.com/1f531e54bb53cafe2023dcfb788ad523/20db5746b8d5dde7-68/s250x400/445953dbfb5515b5a94d50b5dc57c408d7acd578.webp"> 
+<img src="https://64.media.tumblr.com/68d782112bc822a8f969e1267324ea87/c751c335e9f91105-18/s250x400/df53ce19e7ae9f6cccef1f5f855610d15192ddc6.gifv"> <img src="https://64.media.tumblr.com/62abd5ae12f90d472ab47a964ead439f/154ae9a5fa265c80-8e/s250x400/e560ce38493e27c401aaa0d4a139d40ede960daf.gifv"> 
 
-<img src="https://64.media.tumblr.com/49c5b036e1fff67dae28a92ea6b35541/8241699db23afa37-05/s400x600/297a2df149c1b1b00e078727cfc3ba3a6afb0426.pnj">
-</details>
+<img src="https://64.media.tumblr.com/338ed2750ef40203f6cf6096fb645e2f/00726d1c6de3f66f-c2/s1280x1920/a262fe3ad645deb68aba49eafa9eebae4e09674a.pnj" width="300" >
