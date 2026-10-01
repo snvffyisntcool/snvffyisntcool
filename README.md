@@ -1,3 +1,4 @@
+
 <div align="center">
 
 <img src="https://64.media.tumblr.com/ccdeb5a0285f9230cbe118b082b4ca4f/28b7556ffbfa6a70-96/s2048x3072/8420c5d242ab9d8a1b04826e83bcb39467e9179c.pnj" width="500" >
@@ -18,6 +19,10 @@
 `𓈒° socialy awkward`
 <br>
 `(¬﹏¬")`
+<br>
+
+<a href="https://hits.sh/github.com/Chemicalshot/"><img alt="Hits" src="https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=fish%20caught&color=2a5d8c&labelColor=343434"/></a>
+<br>
 
 <img src="https://64.media.tumblr.com/59a1685fefa418742e122e7151e1f8be/6c010a2225957f8c-a9/s400x600/aaee522904e2ba44f863371c924a11dc51aa319d.gifv">
 <br>
