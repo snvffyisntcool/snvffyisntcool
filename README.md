@@ -10,7 +10,7 @@
 <img width="30" height="30" alt="ki249o" src="https://64.media.tumblr.com/ded226a6c98ba67181075e4d7471e3cf/8622497859e9ab3b-e6/s64x64u_c1/788c2e4c61ed043739db98c2b2e53b3553c994c4.pnj" /> ${\color{#55B3CC} ⊱ snvffy - he/it ⊰ }$
 <br>
 
-`often off tab W2I - `
+`very often off tab W2I - `
 <br>
 `C+H freely! ༄`
 <br>
