@@ -47,3 +47,7 @@
 <img src="https://64.media.tumblr.com/68d782112bc822a8f969e1267324ea87/c751c335e9f91105-18/s250x400/df53ce19e7ae9f6cccef1f5f855610d15192ddc6.gifv"> <img src="https://64.media.tumblr.com/62abd5ae12f90d472ab47a964ead439f/154ae9a5fa265c80-8e/s250x400/e560ce38493e27c401aaa0d4a139d40ede960daf.gifv"> 
 
 <img src="https://64.media.tumblr.com/338ed2750ef40203f6cf6096fb645e2f/00726d1c6de3f66f-c2/s1280x1920/a262fe3ad645deb68aba49eafa9eebae4e09674a.pnj" width="300" >
+</details>
+<br>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=12121224281&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4eb1b0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
