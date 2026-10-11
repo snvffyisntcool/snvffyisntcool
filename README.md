@@ -48,6 +48,3 @@
 
 <img src="https://64.media.tumblr.com/338ed2750ef40203f6cf6096fb645e2f/00726d1c6de3f66f-c2/s1280x1920/a262fe3ad645deb68aba49eafa9eebae4e09674a.pnj" width="300" >
 </details>
-<br>
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=12121224281&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4eb1b0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
